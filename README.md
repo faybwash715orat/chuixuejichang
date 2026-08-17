@@ -7,7 +7,8 @@
 ## 吹雪云机场官网地址
 
 - 吹雪云官网域名：`吹雪云.com`
-- ChuiXueCloud 注册入口：[点击进入吹雪云机场官网](https://xn--9kqs1lo79d.com/#/register?code=onsy7HvZ)
+- ChuiXueCloud 注册入口：[点击进入吹雪云机场官网](https://xn--9kqs1lo79d.com/#/register?code=xLhMbUGB)
+- 优惠券：`吹雪专属AFF合作`
 - 最低套餐价格：**2 元/月**
 - 最低套餐流量：**每月 128GB**
 - 支持设备数量：**8 至 50 台**
@@ -30,7 +31,8 @@
 - **一次性流量套餐**：适合不想每月续费的用户
 - **团体套餐**：提供面向多人使用的大流量方案
 
-[立即查看吹雪云机场套餐](https://xn--9kqs1lo79d.com/#/register?code=onsy7HvZ)
+[立即查看吹雪云机场套餐](https://xn--9kqs1lo79d.com/#/register?code=xLhMbUGB)
+- 优惠券：`吹雪专属AFF合作`
 
 ## 吹雪云月付套餐价格
 
@@ -67,7 +69,8 @@
 
 无法确定线路是否适合时，建议先选择低价月付套餐进行测试，再根据实际使用情况考虑是否升级。
 
-[2 元注册体验吹雪云机场](https://xn--9kqs1lo79d.com/#/register?code=onsy7HvZ)
+[2 元注册体验吹雪云机场](https://xn--9kqs1lo79d.com/#/register?code=xLhMbUGB)
+- 优惠券：`吹雪专属AFF合作`
 
 ## 吹雪云机场测速
 
@@ -101,7 +104,9 @@
 
 如果你正在寻找低价机场、2 元机场、大流量机场、一次性流量机场或多设备机场，可以先选择吹雪云最低价月付套餐测试实际线路表现。
 
-[点击注册 ChuiXueCloud 吹雪云机场](https://xn--9kqs1lo79d.com/#/register?code=onsy7HvZ)
+[点击注册 ChuiXueCloud 吹雪云机场](https://xn--9kqs1lo79d.com/#/register?code=xLhMbUGB)
+
+**优惠券：** `吹雪专属AFF合作`
 
 ## 吹雪云机场常见问题
 
